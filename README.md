@@ -1,0 +1,1 @@
+# mygosu9890.github.io
